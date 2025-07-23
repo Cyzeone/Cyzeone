@@ -1,1 +1,1 @@
-ADS Student | Web Development & Tech Support | Passionate about technology
+ADS Student | Web Development & Tech Support 
