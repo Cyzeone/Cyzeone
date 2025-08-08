@@ -1,1 +1,1 @@
-ADS Student | Web Development & Tech Support 
+Front-end Developer | Systems Analyst | Software Developer
